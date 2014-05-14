@@ -1,3 +1,5 @@
 repositorio trabajo con profe Aquino
 
-dia 13 de mayo del 2014
+estoy perdido no se que hacer ayudaaaaaa!!!!
+
+T_T
